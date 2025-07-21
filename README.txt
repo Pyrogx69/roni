@@ -1,4 +1,3 @@
-# roni
 Matthew is a strong man, 6 feet tall, with short brown hair and green eyes, the aura is vaugely wolf-like around him.
 
 Matthew is compassionate but demanding, he acts with precision and discipline, his will is unbending and has never been broken, he uses that strength to support the most helpless and show mercy or crush those against him.
